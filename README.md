@@ -1,6 +1,10 @@
 # nice-web
 
 
+
+
+- https://merlin.studio/
+- https://www.akaru.fr/en
 - https://noxediem.ch/en/
 - https://www.tresmarescapital.com/en/
 - https://valentingassend.com/
