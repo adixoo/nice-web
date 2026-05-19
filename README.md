@@ -1,8 +1,8 @@
 # nice-web
 
 
-
-
+- https://noxediem.ch/en/
+- https://www.tresmarescapital.com/en/
 - https://valentingassend.com/
 - https://www.sirnik.co/
 - https://www.tildei.com/
